@@ -4,7 +4,7 @@
 
 ![photo_2024-01-20_20-17-48](https://github.com/Mohamedthanvir/Barbershop-Website/assets/107427917/c8114461-a4b6-4fc5-baa8-ee83ac54a286)
 
-<img src="D:\project\resume\dress\Output\Screenshot 2024-01-20 204011.png" alt="project-screenshot" width="400" height="400/">
+![photo_2024-01-20_20-18-08](https://github.com/Mohamedthanvir/Barbershop-Website/assets/107427917/c692ef34-1a6a-4c37-8ea5-7ffa96540bd6)
 
   
   
